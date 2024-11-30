@@ -22,6 +22,6 @@ Explore my hands-on data projects:
 
 ## Contact
 📧 [quarshiesalomey@gmail.com](mailto:quarshiesalomey@gmail.com)  
-🔗 [LinkedIn Profile](https://linkedin.com/in/salomey-quarshie)
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/salomey-quarshie-52a10b136)
 
 Feel free to explore and connect with me!
